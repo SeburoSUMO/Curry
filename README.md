@@ -2,7 +2,7 @@
 
 (serves 1)
 
-Put a bottle of ale in the fridge, preferably an IPA.  London Pride is perfect.  Lager is very acceptable (and should already be in the fridge).  Punk IPA, Fosters and craft ale is not welcome.
+Put a bottle of ale in the fridge, preferably an IPA.  London Pride is perfect.  Lager is very acceptable (and should already be in the fridge).  Punk IPA, Fosters and "craft ale" is not welcome.
 
 In a small saucepan:-
 
